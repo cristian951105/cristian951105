@@ -55,6 +55,6 @@ I'm a Full Stack & Blockchain Developer with 7+ years of hands-on experience del
 
 Feel free to reach out if you’re looking to collaborate or want to chat about tech, startups, or blockchain innovation.
 
-[Portfolio](#) • [LinkedIn](#) • [Email](mailto:you@example.com)
+[LinkedIn](https://linkedin.com/in/cristian88/) • [Email](mailto:you@example.com)
 
 
